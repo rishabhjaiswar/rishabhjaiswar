@@ -1,3 +1,7 @@
+Hii everyone
+ 
+ This is rishabh and 
+I Software developer.
 
 I have a Bachelors degree in Information technology. 
 
